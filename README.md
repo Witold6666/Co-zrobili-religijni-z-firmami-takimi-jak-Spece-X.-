@@ -1,1 +1,2 @@
 # Co-zrobili-religijni-z-firmami-takimi-jak-Spece-X.-
+Religijni zaczeli uczyć się telkinezy i odaychania robili za drukarki kwantowe. Kiedyś już było Spece X ale spaljtowało przez religijnych złodzieji i foljarzy. Zabrali im rakiety i postanowili podbić kosmos i załozyć kolonie w kosmosie. Na górze w kosmosie są koloenie i domostwa ludzi z ziemi i innych ziemi może tam mieszkali religijni. Z tego co wiem oni mieli moc telkinezy jak yoga. Wierzyli w orgnity nie w rękawice nieskończoności. 
